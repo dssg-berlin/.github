@@ -6,4 +6,4 @@ If you have contacts in your network that work in nonprofits or should know abou
 
 * Fill out our contact form: https://airtable.com/shrOF6BwpduV5RY3a
 
-* Write us an e-mail to contact@dssg-berlin.org
+* Write us an e-mail to dssgber@gmail.com
