@@ -1,4 +1,4 @@
-# Latest DSSG Berlin e.V. updates
+# Latest DSSG Berlin updates
 
 ## New ways to reach out to us if you are a nonprofit
 
